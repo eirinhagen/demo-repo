@@ -10,3 +10,4 @@ gaw gaw gaw
 
 1. Mrrrrrrr
 2. Krya?
+3. kto ya
